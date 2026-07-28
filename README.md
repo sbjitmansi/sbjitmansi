@@ -14,7 +14,7 @@ I'm a passionate **Artificial Intelligence & Machine Learning** engineering stud
 - 🎯 Goal: To grow as an **AI / ML Engineer**
 - 🏆 **Smart India Hackathon 2024 National Finalist**
 - 📍 Nagpur, Maharashtra · Open to remote & relocation
-- ✉️ sawarkarm102@gmail.com · 📞 +91-9322812158
+- ✉️ mansisawarkar98@gmail.com · 📞 +91-9322812158
 
 ---
 
